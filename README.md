@@ -1,2 +1,2 @@
 # abay_tamada
-132
+https://tolebijaksybai.github.io/abay_tamada/
